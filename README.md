@@ -1,9 +1,9 @@
 # Bahsegel’e Hoş Geldin! 🚀 Güncel Giriş Linki ve Bahis Fırsatları Burada! 🎉
 
-# [Bahsegel Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Bahsegel Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Bahsegel Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Bahsegel Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
+# [Bahsegel Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Bahsegel Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Bahsegel Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Bahsegel Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
 
 <br>
 
